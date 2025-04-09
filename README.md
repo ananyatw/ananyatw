@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @ananyatw
 - 👀 I’m interested in basketball, dance, art and coding
 - 🌱 I’m currently learning about computer and information technologies @ purdue university
-- 📫 How to reach me: instagram: @ananyatw, mail: ananya6304@gmail.com
+- 📫 How to reach me: mail: ananya6304@gmail.com
